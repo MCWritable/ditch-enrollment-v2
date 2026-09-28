@@ -1,2 +1,1 @@
-# ditch-enrollment-v2
-(UPDATED GUIDE OF DITCH-ENROLLMENT, BETTER VERSION)
+im not responsible for ANY trouble you get in with these, (unenrollment methods.)
